@@ -157,7 +157,7 @@ Reqth = 1298.35 Ω
 
 5. VIDEO DE YOUTUBE
 
-
+https://youtu.be/ggPRLc2wbWM
 
 6. CONCLUSIONES
 
